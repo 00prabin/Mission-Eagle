@@ -1,2 +1,2 @@
 # Mission-Eagle
-Newly opened 
+Newly opened mission to explore space 
